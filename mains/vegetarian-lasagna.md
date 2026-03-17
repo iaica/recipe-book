@@ -13,7 +13,7 @@
 - **1** medium zucchini, thinly sliced
 - **1** bell pepper, diced
 - **1** small onion, diced
-- **2-3 cloves** garlic, minced
+- **3-4 cloves** garlic, minced
 - **1 tablespoon** olive oil
 - **Salt and pepper** to taste
 - **1 teaspoon** dried oregano or Italian seasoning
